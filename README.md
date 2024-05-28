@@ -1,5 +1,5 @@
 # Webfolio
-> [🔗 ghinansya.site →](https://ghinansya.site)
+[🔗 ghinansya.site →](https://ghinansya.site)
 
 
 👩 Ghina Nur Agsya
